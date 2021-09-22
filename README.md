@@ -1,1 +1,0 @@
-https://NIBLER483.github.io/rsschool-cv/cv
