@@ -1,6 +1,6 @@
 >**person:** **_Sergey Tomonov_**
 >
-> **contacts:** [Gmail](Nibler483@gmail.com) , [Skype](https://join.skype.com/invite/ht5RYLeIdtbi), [VK](https://vk.com/fisher_airsoft).
+> **contacts:** [Skype](https://join.skype.com/invite/ht5RYLeIdtbi), [VK](https://vk.com/fisher_airsoft).
 > 
 >**telephone number:** 80257113386
 >
